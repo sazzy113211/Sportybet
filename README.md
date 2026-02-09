@@ -1,0 +1,2 @@
+# Sportybet
+AUTO HACK
